@@ -2,7 +2,8 @@
 
 # hello im pi
 ## you can also call me noah
-
+### or any of my hyperfixes when you learn about them or whatever
+---
 > - ive audhd also i'm an .sdd pl.r.l
 
 > - its dniuf but if you really wanna;;; w2i & iwec
