@@ -6,13 +6,16 @@
 ---
 > - ive audhd also i'm an .sdd pl.r.l
 
+
 > - its dniuf but if you really wanna;;; w2i & iwec
 
 >  i don't mind talking really i js get really anxious when people i don't know talk to me that is
 
+
 > - usually on pt semi-afk to make something like homework
 
 > or to hang out with friends :3 
+
 
 > - please be patient with me
 
