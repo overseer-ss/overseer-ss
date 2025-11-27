@@ -2,7 +2,7 @@
 
 # hello im pi
 ## you can also call me noah
-### or any of my hyperfixes when you learn about them or whatever
+### or any of my hyperfixations when you learn about them or whatever
 ---
 > - ive audhd also i'm an .sdd pl.r.l
 
