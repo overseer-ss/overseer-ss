@@ -6,7 +6,7 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤ                            ㅤㅤ![animaatjes-wing-9389](https://github.com/user-attachments/assets/36256527-a238-44f2-aa98-0ec76724d3ad)
 𝖧𝖨 𝖳𝖧𝖤𝖱𝖤'𝖲 𝖠 𝖰𝖴𝖨𝖢𝖪 𝖨𝖭𝖥𝖮 𝖡𝖤𝖥𝖮𝖱𝖤 𝖸𝖮𝖴 𝖨𝖭𝖳![animaatjes-wing-351071](https://github.com/user-attachments/assets/832465de-c689-4c6c-9322-981948e9540e)
 
-ㅤㅤㅤㅤㅤㅤ ![03dc8f4f](https://github.com/user-attachments/assets/207d0592-d239-4ddb-b1c5-72b7de663094)
+ㅤㅤㅤㅤㅤ ![03dc8f4f](https://github.com/user-attachments/assets/207d0592-d239-4ddb-b1c5-72b7de663094)
 
 
 ㅤㅤㅤㅤㅤ ㅤㅤㅤㅤ ㅤㅤㅤ ㅤㅤㅤㅤ**𝖠𝖴𝖣𝖧𝖣 - 𝖬𝖨𝖭𝖮𝖱 (!)** ![9428ff1a_original](https://github.com/user-attachments/assets/08dcec87-1627-4d45-8bae-320fa4e6d939)
@@ -27,7 +27,7 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ 𝖮𝖭𝖫𝖸 𝖨𝖭𝖳𝖤𝖱𝖠𝖢𝖳 𝖨𝖭 𝖲𝖤𝖱𝖵𝖤𝖱 𝖫𝖠𝖭𝖦𝖴𝖠𝖦𝖤 (𝖲𝖲=𝖤𝖭𝖦, 𝖤𝖳𝖢)
 ㅤㅤ
 
-ㅤ ㅤㅤㅤㅤㅤ ![03dc8f4f](https://github.com/user-attachments/assets/207d0592-d239-4ddb-b1c5-72b7de663094)
+ㅤ ㅤㅤㅤㅤ ![03dc8f4f](https://github.com/user-attachments/assets/207d0592-d239-4ddb-b1c5-72b7de663094)
 
 
 
