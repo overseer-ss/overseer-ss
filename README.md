@@ -3,7 +3,7 @@
 <img width="736" height="149" alt="image" src="https://github.com/user-attachments/assets/601e36e4-a958-43b7-a5ea-e260da9300a1" />
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤ                            ㅤㅤ![animaatjes-wing-9389](https://github.com/user-attachments/assets/36256527-a238-44f2-aa98-0ec76724d3ad)
+ㅤㅤㅤㅤㅤㅤㅤㅤ                          ㅤ   ㅤㅤ![animaatjes-wing-9389](https://github.com/user-attachments/assets/36256527-a238-44f2-aa98-0ec76724d3ad)
 𝖧𝖨 𝖳𝖧𝖤𝖱𝖤'𝖲 𝖠 𝖰𝖴𝖨𝖢𝖪 𝖨𝖭𝖥𝖮 𝖡𝖤𝖥𝖮𝖱𝖤 𝖸𝖮𝖴 𝖨𝖭𝖳![animaatjes-wing-351071](https://github.com/user-attachments/assets/832465de-c689-4c6c-9322-981948e9540e)
 
 ㅤㅤㅤㅤㅤ ![03dc8f4f](https://github.com/user-attachments/assets/207d0592-d239-4ddb-b1c5-72b7de663094)
