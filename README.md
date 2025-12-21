@@ -5,4 +5,4 @@
 
 BYI: 
 
-<img width="500" height="85" alt="image" src="https://github.com/user-attachments/assets/06906e60-3a75-4851-ba50-6ed616a262fd" />
+<img width="469" height="81" alt="image" src="https://github.com/user-attachments/assets/308cf495-5e2a-4143-8f79-74ea2de7f5d8" />
